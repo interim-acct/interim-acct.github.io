@@ -1,2 +1,4 @@
 # interim-acct.github.io
-it is a test-page
+アマギフくれ
+twitterDMに
+@interim_acct
